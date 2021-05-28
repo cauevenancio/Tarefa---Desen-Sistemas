@@ -3,7 +3,7 @@
 
 ### Caue Venâncio
 
-### Guilherme Medeiros
+### Guilherme Medeiros da Silva
 
 ### Caio Miguel
 
