@@ -1,11 +1,11 @@
 # Tarefa - Desenvolvimento de Sistemas
 ---
 
-### Caue Venâncio
+### Caue Venâncio Delfino
 
 ### Guilherme Medeiros da Silva
 
-### Caio Miguel
+### Caio Miguel Saturnino Barreto
 
 ###
 
