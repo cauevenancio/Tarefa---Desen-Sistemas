@@ -3,9 +3,9 @@
 
 ### Caue Venâncio
 
-###
+### Guilherme Medeiros da Silva
 
-###
+### Caio Miguel Saturnino Barreto
 
 ###
 
