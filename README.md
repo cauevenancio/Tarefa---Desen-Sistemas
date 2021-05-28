@@ -5,7 +5,7 @@
 
 ### Guilherme Medeiros da Silva
 
-### Caio Miguel
+### Caio Miguel Saturnino Barreto
 
 ###
 
